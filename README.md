@@ -17,8 +17,8 @@ I help clients turn **vague AI outputs into actionable insights** that save time
 
 ## 📬 Work With Me
 Looking for a **Prompt Engineer** to optimize your AI workflows?  
-📧 Contact: [your email]  
-🌐 LinkedIn: [your LinkedIn profile]  
+📧 Contact: zohib312@gmail.com
+🌐 LinkedIn:  https://www.linkedin.com/in/zohib-khan-0216b3157?
 
 ---
 *Crafted with ❤️ by Zohib Khan*
